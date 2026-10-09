@@ -229,4 +229,4 @@ Among the Sleep is offered as a **full free version** with all features and upda
 Dive into the world of **Among the Sleep** today and confront your childhood nightmares. Click the download button now and start your adventure!
 
 ---
-**Last updated:** 2026-10-09 02:45:03 UTC
+**Last updated:** 2026-10-09 10:00:08 UTC
